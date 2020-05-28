@@ -6,6 +6,7 @@ My name is Alyssa Wu, and I am currently a junior in high school.
 ## ACTIVITIES
 **Juilliard Music Advancement Program (MAP)**, _2016-2018_
 *    Viola Student
+*    Weekly classes (music theory, ear training) and rehearsals
 
 **Juilliard Pre-College Program**, _2018-PRESENT_
 *    Viola Student
