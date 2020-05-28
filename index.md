@@ -19,7 +19,7 @@ My name is Alyssa Wu, and I am currently a junior in high school.
 
 ## WORK EXPERIENCE
 ### DOCTOR'S ASSISTANT
-Health First Medical Associates / July - September 2018
+_Health First Medical Associates / July - September 2018_
 *    Checked in patients
 *    Recorded weight and height in patient files
 *    Ran EKG tests with doctor's assistance
