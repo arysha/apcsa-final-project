@@ -17,7 +17,7 @@ My name is Alyssa Wu, and I am currently a junior in high school.
 *    Inductee
 *    Involved in fundraising efforts and event organization
 
-**Waksman Students Scholar Program**, _2019-PRESENT_
+**Waksman Student Scholars Program**, _2019-PRESENT_
 *    Member, Lab Coordinator
 *    Performing molecular biological lab procedures
 *    Analyzing DNA sequences
@@ -34,7 +34,7 @@ _Health First Medical Associates / July - September 2018_
 
 
 ## SKILLS
-### LANGUAGES
+**LANGUAGES**
 *    English
 *    Chinese
 *    German
