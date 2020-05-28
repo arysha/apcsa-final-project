@@ -3,8 +3,8 @@
 My name is Alyssa Wu, and I am currently a junior in high school.
 
 _SOCIAL MEDIA_
-*    Instagram: @\_.arysha._
-*    Twitter: @arysha24
+*    Instagram: _@\_.arysha.\__
+*    Twitter: _@arysha24_
 
 ## ACTIVITIES
 **Juilliard Music Advancement Program (MAP)**, _Sept. 2016- May 2018_
