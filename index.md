@@ -9,12 +9,17 @@ My name is Alyssa Wu, and I am currently a junior in high school.
 
 **Juilliard Pre-College Program**, _2018-PRESENT_
 *    Viola Student
+*    Weekly classes (music theory, ear training) and rehearsals
 
 **German Honors Society**, _2018-PRESENT_
 *    Inductee
+*    Involved in fundraising efforts and event organization
 
 **Waksman Students Scholar Program**, _2019-PRESENT_
 *    Member, Lab Coordinator
+*    Performing molecular biological lab procedures
+*    Analyzing DNA sequences
+*    Have a published work in NCBI database
 
 
 ## WORK EXPERIENCE
