@@ -6,6 +6,8 @@ My name is Alyssa Wu, and I am currently a junior in high school.
 *    Instagram: _@\_.arysha.\__
 *    Twitter: _@arysha24_
 
+
+
 ## ACTIVITIES
 **Juilliard Music Advancement Program (MAP)**, _Sept. 2016 - May 2018_
 *    Viola Student
@@ -28,6 +30,7 @@ My name is Alyssa Wu, and I am currently a junior in high school.
 *    Have a published work in NCBI database
 
 
+
 ## WORK EXPERIENCE
 **DOCTOR'S ASSISTANT**
 _Health First Medical Associates, July - Sept. 2018_
@@ -35,6 +38,7 @@ _Health First Medical Associates, July - Sept. 2018_
 *    Recorded weight and height in patient files
 *    Ran EKG tests with doctor's assistance
 *    Made phone calls to patients for appointment reminders
+
 
 
 ## SKILLS
