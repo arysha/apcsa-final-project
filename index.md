@@ -2,7 +2,7 @@
 
 My name is Alyssa Wu, and I am currently a junior in high school.
 
-**SOCIAL MEDIA**
+_SOCIAL MEDIA_
 *    Instagram: @\_.arysha._
 *    Twitter: @arysha24
 
