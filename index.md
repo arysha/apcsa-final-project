@@ -3,21 +3,21 @@
 My name is Alyssa Wu, and I am currently a junior in high school.
 
 ## ACTIVITIES
-**Juilliard Music Advancement Program (MAP)**, _2016-2018_
+**Juilliard Music Advancement Program (MAP)**, _Sept. 2016- May 2018_
 *    Viola Student
 *    Weekly classes (music theory, ear training) and rehearsals
 *    Seasonal orchestra concerts
 
-**Juilliard Pre-College Program**, _2018-PRESENT_
+**Juilliard Pre-College Program**, _Sept. 2018-PRESENT_
 *    Viola Student
 *    Weekly classes (music theory, ear training) and rehearsals
 *    Seasonal orchestra concerts with world-renowned conductors
 
-**German Honors Society**, _2018-PRESENT_
+**German Honors Society**, _Sept. 2018-PRESENT_
 *    Inductee
 *    Involved in fundraising efforts and event organization
 
-**Waksman Student Scholars Program**, _2019-PRESENT_
+**Waksman Student Scholars Program**, _Sept. 2019-PRESENT_
 *    Member, Lab Coordinator
 *    Perform molecular biological lab procedures
 *    Analyze DNA sequences
@@ -26,7 +26,7 @@ My name is Alyssa Wu, and I am currently a junior in high school.
 
 ## WORK EXPERIENCE
 **DOCTOR'S ASSISTANT**
-_Health First Medical Associates / July - September 2018_
+_Health First Medical Associates, July-Sept. 2018_
 *    Checked in patients
 *    Recorded weight and height in patient files
 *    Ran EKG tests with doctor's assistance
