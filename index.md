@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Hello!
 
-I'm glad you are here. I plan to talk about female empowerment.
+My name is Alyssa Wu, and I am currently a junior in high school.
