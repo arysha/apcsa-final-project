@@ -10,6 +10,7 @@ My name is Alyssa Wu, and I am currently a junior in high school.
 **Juilliard Pre-College Program**, _2018-PRESENT_
 *    Viola Student
 *    Weekly classes (music theory, ear training) and rehearsals
+*    Seasonal orchestra concerts with world-renowned conductors
 
 **German Honors Society**, _2018-PRESENT_
 *    Inductee
